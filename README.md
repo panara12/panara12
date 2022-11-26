@@ -1,4 +1,3 @@
-# 💫 About Me:
 B.Tech Student, I think that's enough
 
 
